@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @zehirkargilar
+- 👀 I’m interested in everything.
+- 🌱 I’m currently learning anything i can afford.
+- 💞️ I’m looking to collaborate on nothing.
+- 📫 How to reach me is a question i dont intend on getting to.
